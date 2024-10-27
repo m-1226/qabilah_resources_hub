@@ -1,2 +1,2 @@
-# qabilah_logos_hub
-كل اللوجو الخاص بقبيلة لاستخدامه في موقعي الشخصي
+# Qabilah Resources Hub
+مصادر قبيلة
